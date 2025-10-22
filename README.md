@@ -1,4 +1,4 @@
-## Oiii eu sou a André Wilckay, estudante de programação e empreendedor!
+## Oi eu sou a André Wilckay, estudante de programação e empreendedor!
 
 
 
